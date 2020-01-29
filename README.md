@@ -1,2 +1,2 @@
-kmaonchy.com
-http://kmaonchy.website2.me
+kma
+http://kmastore.wixsite.com/kma3
